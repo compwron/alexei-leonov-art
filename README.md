@@ -1,10 +1,10 @@
-references
+Alexei Leonov (1934 – 2019) was a Soviet and Russian cosmonaut, Air Force major general, writer, and artist. On 18 March 1965, he became the first person to conduct a spacewalk, exiting the capsule during the Voskhod 2 mission for 12 minutes and 9 seconds. 
 
-April 7, 1968: Cosmonaut Alexei Leonov, the world’s first spacewalker, publishes a book with Vladimir Lebedev: Perception of Space and Time in the Cosmos. The authors suggest future astronauts should avoid monotony in space with a well-stocked library, films, and music.
+published a book with Vladimir Lebedev: Perception of Space and Time in the Cosmos
 
 200 space-themed paintings
-Tretyakov Gallery, Moscow
-galleries in Huston, the U.S., Dresden, Germany, ++
+
+Tretyakov Gallery, Moscow, plus other galleries in other places
 
 1. https://artinvestment.ru/en/news/artnews/20170410_Leonov_cosmonaut_art_Tretyakov.html
 1. https://en.wikipedia.org/wiki/Alexei_Leonov
